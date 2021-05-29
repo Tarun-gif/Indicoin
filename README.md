@@ -1,0 +1,2 @@
+# Indicoin
+Indian crypto currency 
